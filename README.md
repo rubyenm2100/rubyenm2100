@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rubyenm2100
+- 👀 I’m interested in technology, music, spanish, and basketball.
+- 🌱 I’m currently learning, spanish,and coding.
+- 💞️ I’m looking to collaborate with someone cool!
+- 📫 How to reach me is on facebook, instagram, snapchat.
